@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iviickysharma
+- 👋 Hi, I’m Vɩcĸƴ Sʜʌʀɱʌ
 - 👀 I’m interested in learning 🆕 things
 - 🌱 I’m currently learning something special 
 - 💞️ I’m looking to collaborate on new things
